@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Nehaal970
+- 👀 I’m interested in coding
